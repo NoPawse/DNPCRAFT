@@ -21,8 +21,9 @@ I hope you have fun on our server!
           Your Favorite Snail
           NoPawse
           
-          
+---------------------------------------------------------------------         
 DISCORD: https://discord.gg/UeGeUBNB4E
 YOUTUBE: https://tinyurl.com/NoPawseYT
          https://tinyurl.com/DqrkYT
 TIKTOK: https://tinyurl.com/NoPawseTikTok
+---------------------------------------------------------------------
